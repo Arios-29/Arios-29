@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Chen Yu
-- 👀 I’m interested in JoJo
+- 👀 I’m interested in Nintendo Switch games
 - 🌱 
 - 💞️
 - 📫 contact me with yuchen@smail.nju.edu.cn
